@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shivani0816
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Artificial Intillegence
-- 💞️ I’m looking to collaborate on new ideas and projects on AI.
+- 💞️ I’m looking to collaborate on new ideas and develop projects on AI.
 - 📫 How to reach me lakkakulashivani16@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
